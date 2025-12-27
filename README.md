@@ -1,5 +1,5 @@
 # 💫 About Me:
-Mahasiswa Politeknik Negeri Lhokseumawe yang juga aktif sebagai konten kreator game, dengan fokus pada genre first-person shooter (FPS), khususnya game Delta Force.
+Mahasiswa Politeknik Negeri Lhokseumawe 
 
 
 ## 🌐 Socials:
